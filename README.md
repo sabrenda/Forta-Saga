@@ -1,3 +1,5 @@
+Please add me as a Agent Developer [Published] on Discord, my username is Saga#5008
+
 # High Gas Agent
 
 ## Description
